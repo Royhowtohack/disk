@@ -4,6 +4,4 @@
 
 
 
-
-https://github.com/Royhowtohack/disk/assets/52094557/3fc74953-7fe4-46cf-8a5d-de595c33d48d
-
+![93101d7292e8b96c43b34d491501c171](https://github.com/Royhowtohack/disk/assets/52094557/dd128845-bce5-4937-b8c0-ec79b1a9fd9c)
