@@ -8,3 +8,10 @@
 
 
 <img width="667" alt="Screen Shot 2023-06-21 at 2 58 16 PM-min" src="https://github.com/Royhowtohack/disk/assets/52094557/ec2dbef1-cc89-4050-bcf5-7923940359b2">
+
+
+![Listening_lecture_psychology](https://github.com/Royhowtohack/disk/assets/52094557/b3970308-1431-4ed1-9847-3f95995ea192)
+
+![Task1_technology](https://github.com/Royhowtohack/disk/assets/52094557/f5dfbfe0-b7a3-48fb-ba6b-e32be38814fb)
+
+![Integreted_environmental_science](https://github.com/Royhowtohack/disk/assets/52094557/61ea839b-50e6-44d0-96b3-d8290d22786f)
