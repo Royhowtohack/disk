@@ -15,3 +15,18 @@
 ![Task1_technology](https://github.com/Royhowtohack/disk/assets/52094557/f5dfbfe0-b7a3-48fb-ba6b-e32be38814fb)
 
 ![Integreted_environmental_science](https://github.com/Royhowtohack/disk/assets/52094557/61ea839b-50e6-44d0-96b3-d8290d22786f)
+
+
+![2023-06-28 12 59 46](https://github.com/Royhowtohack/disk/assets/52094557/9abf3d7b-469e-4eb6-b465-88dc494cc58c)
+
+
+
+
+
+
+
+
+
+
+
+
