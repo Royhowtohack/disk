@@ -55,8 +55,22 @@
 ![Dia](https://github.com/Royhowtohack/disk/assets/52094557/6c853a02-0cbc-4940-87ae-226c581fca50)
 
 
+Screenshots
+
+<img width="615" alt="Zoe" src="https://github.com/Royhowtohack/disk/assets/52094557/9afb26a4-df13-4c67-b0f0-f79608eb110d">
+
+<img width="323" alt="Minato" src="https://github.com/Royhowtohack/disk/assets/52094557/154bc097-2a61-4ee9-92f0-4cfa0593a12f">
+
+<img width="398" alt="Dia" src="https://github.com/Royhowtohack/disk/assets/52094557/8fa7bcf4-1688-48fe-a0c3-20a957bc005e">
+
+<img width="398" alt="Yuna" src="https://github.com/Royhowtohack/disk/assets/52094557/382ac29d-9173-47ff-81b0-d2ec040ec851">
+<img width="400" alt="Yancy" src="https://github.com/Royhowtohack/disk/assets/52094557/7cf02032-b06d-4d35-91a1-bcb8c397878d">
+<img width="401" alt="Taylor" src="https://github.com/Royhowtohack/disk/assets/52094557/3588022a-a342-47e7-be97-a4fcf075d546">
+<img width="417" alt="Nancy" src="https://github.com/Royhowtohack/disk/assets/52094557/973ea367-deef-4f4d-8963-faa8bd51da4c">
+<img width="397" alt="Cameron" src="https://github.com/Royhowtohack/disk/assets/52094557/e3dac3f6-f02c-4c1d-aa9f-870bf5c4015b">
 
 
+<img width="393" alt="Shelia" src="https://github.com/Royhowtohack/disk/assets/52094557/af1c317b-ad33-4ee7-89ca-48df847b8ce8">
 
 
 
